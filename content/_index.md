@@ -11,6 +11,4 @@ I am a cheerful and helpful person.
 
 My hobby is basketball.
 
-
-
-![涂抹擦除_20221010_1(3)](F:\图片\涂抹擦除_20221010_1(3).jpg)
+![image-20221010203253471](C:\Users\Administrator\AppData\Roaming\Typora\typora-user-images\image-20221010203253471.png)
